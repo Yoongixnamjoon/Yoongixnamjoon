@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Yoongixnamjoon
+- 👀 I’m interested in swimming,art, dancing, singing and kpop
+- 🌱 I’m currently learning different languages 
+- 💞️ I’m not sure what I'm looking to collaborate on yet
+- 📫 How to reach me noahsteiner@gmail.com or noahsteiner1763@gmail.com
+- 😄 Pronouns: HE/HIM/HIS 
+- ⚡ Fun fact: Ive done competitive swimming for 12 years. i go by noah or spencer. im a transgender male artist 
